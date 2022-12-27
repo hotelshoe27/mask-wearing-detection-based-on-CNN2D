@@ -31,4 +31,4 @@ and Plz follwoing this below💨
 ---
 
 ### 4_Test result (Video)
-Plz testing yourself
+Plz testing yourself😅
